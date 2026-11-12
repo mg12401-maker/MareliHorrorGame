@@ -19,16 +19,3 @@ Silent Hill f confirmed for PS5, Xbox Series, and PC; reveal trailer - Gematsu
 
 Silent Hill F - Horror Game Review
 
-## Pregunta 12: ¿Cómo quieres que sea el monstruo durante el juego?
-
-A. Apariciones aleatorias: aparece inesperadamente en diferentes lugares y desaparece.
-
-B. Persecución inteligente: te busca, te sigue y te persigue cuando te encuentra.
-
-C. Monstruo por zonas: aparece solamente en determinadas casas y lugares.
-
-D. Combinación A + B: aparece inesperadamente y también puede perseguirte por el pueblo.
-
-¿Cuál eliges?
-
-Mi recomendación es D: hará que el juego sea mucho más aterrador sin necesitar una inteligencia artificial demasiado complicada.
